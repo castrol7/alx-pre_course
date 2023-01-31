@@ -1,1 +1,1 @@
-Tiff is cool
+Tiff is great
